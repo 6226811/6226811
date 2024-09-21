@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @6226811
 - 👀 I’m interested in many things
 - 🌱 I’m currently learning computer science
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate with who I'm looking to collaborate with
 - 📫 How to reach me: 911
 - 😄 Pronouns: Frog/Froggy
 - ⚡ Fun fact: some turtles can breathe out of their butts
